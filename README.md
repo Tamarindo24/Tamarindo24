@@ -6,7 +6,7 @@
 - 😄 Pronouns: meus amigos me chamam de Tamarindo ou Tamarinha
 - ⚡Sou um pouco ansiosa e por esse motivo não paro quieta kkkkkk
 - 🥊Sou pugilista e tenho o sonho de ir pras olimpiadas.
-- Essa é sou eu 🫶🏽
+- Essa é uma parte de quem eu sou 🫶🏽
 
 <!---
 Tamarindo24/Tamarindo24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
